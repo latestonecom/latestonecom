@@ -1,2 +1,3 @@
 # latestonecom
-LatestOne.com is by far the Hot...test and the Largest Collection of Mobile and Tablet Accessories ever on an Indian virtual platform! If you are unsure, just take the great leap by clicking on the widest possible Mobile Covers that we showcase.
+Latestone.com is the reputed e-tailer known for bringing the latest Mobile Accessories models from all major manufacturers at best discounts. Company has fully operational office and warehouse maintained to make timely deliveries across nation. 
+
